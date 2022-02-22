@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @carsonneagle
-- 👀 I’m interested in ... coding, video games, and 
+- 👀 I’m interested in ... coding, video games, and learning
 - 🌱 I’m currently learning ... the basics of coding!
 - 📫 How to reach me ... Email: neagle.carson@gmail.com
 
